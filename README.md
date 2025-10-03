@@ -1,7 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=llytkinn&label=maniacs.%20&color=222118&style=flat"</p>
 <p align="center">
 
-<img src="https://i.postimg.cc/mgCQ9MXx/nikitaapng.gif?width=50&height=30" >
+<img src="https://files.catbox.moe/4dz486.gif?width=50&height=30" >
 
 <h3 align="center">
   hi pls int :-3   ;   c+h enc  ALWAYS! 
